@@ -1,1 +1,1 @@
-# Behance
+https://helpx.adobe.com/legal/product-descriptions.html/jasonscottheise # Behance
